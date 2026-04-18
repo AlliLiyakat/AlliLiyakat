@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AlliLiyakat
-- 👀 I’m interested in Social Media Marketing
+- 👀 I’m interested in Performance Marketing
 - 🌱 I’m currently learning SEO with Performance Marketing
 - 💞️ I’m looking to collaborate on Digital Marketing
 - 📫 How to reach me liyakatalli.in@gmail.com or https://www.linkedin.com/in/liyakat-alli
